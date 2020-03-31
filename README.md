@@ -1,1 +1,22 @@
-# Timeline-of-women-in-library-science
+</br>
+
+<h2 id ="Timeline of women in library science"> Timeline of women in library science</h2>
+<ul>
+<li>1890:&nbsp;<a href="https://en.wikipedia.org/wiki/Elizabeth_Putnam_Sohier" target="_blank" rel="nofollow noopener">Elizabeth Putnam Sohier</a>&nbsp;and&nbsp;<a href="https://en.wikipedia.org/wiki/Anna_Eliot_Ticknor" target="_blank" rel="nofollow noopener">Anna Eliot Ticknor</a>&nbsp;became the first women appointed to a United States state library agency--specifically, the&nbsp;<a href="https://en.wikipedia.org/wiki/Massachusetts_Board_of_Library_Commissioners" target="_blank" rel="nofollow noopener">Massachusetts Board of Library Commissioners</a>.</li>
+<li>1911:&nbsp;<a href="https://en.wikipedia.org/wiki/Theresa_Elmendorf" target="_blank" rel="nofollow noopener">Theresa Elmendorf</a>&nbsp;became the first woman elected president of the&nbsp;<a href="https://en.wikipedia.org/wiki/American_Library_Association" target="_blank" rel="nofollow noopener">American Library Association</a>.</li>
+<li>1912: Lillian Helena Smith became the first trained children's librarian in Canada in 1912.</li>
+<li>1923:&nbsp;<a href="https://en.wikipedia.org/wiki/Virginia_Proctor_Powell_Florence" target="_blank" rel="nofollow noopener">Virginia Proctor Powell Florence</a>&nbsp;became the first black woman in the United States to earn a degree in library science.&nbsp;She earned the degree (Bachelor of Library Science) from what is now part of the University of Pittsburgh.</li>
+<li>1947:&nbsp;<a href="https://en.wikipedia.org/wiki/Freda_Farrell_Waldon" target="_blank" rel="nofollow noopener">Freda Farrell Waldon</a>&nbsp;became the first president of the&nbsp;<a href="https://en.wikipedia.org/wiki/Canadian_Library_Association" target="_blank" rel="nofollow noopener">Canadian Library Association</a>, and thus, as she was female, its first female president.</li>
+<li>1972:&nbsp;<a href="https://en.wikipedia.org/wiki/Zoia_Horn" target="_blank" rel="nofollow noopener">Zoia Horn</a>, born in Ukraine, became the first United States librarian to be jailed for refusing to share information as a matter of conscience (and, as she was female, the first female United States librarian to do so.)</li>
+<li>1973: Page Ackerman became University Librarian for the&nbsp;<a href="https://en.wikipedia.org/wiki/University_of_California,_Los_Angeles" target="_blank" rel="nofollow noopener">University of California, Los Angeles</a>, and was the United States's first female librarian of a system as large and complex as UCLA's.</li>
+<li>1993: Jennifer Tanfield became the first female Librarian of the&nbsp;<a href="https://en.wikipedia.org/wiki/House_of_Commons_of_the_United_Kingdom" target="_blank" rel="nofollow noopener">House of Commons of the United Kingdom</a>.</li>
+<li>1999:&nbsp;<a href="https://en.wikipedia.org/wiki/Elisabeth_Niggemann" target="_blank" rel="nofollow noopener">Elisabeth Niggemann</a>&nbsp;became the first female director general of the&nbsp;<a href="https://en.wikipedia.org/wiki/German_National_Library" target="_blank" rel="nofollow noopener">German National Library</a>.</li>
+<li>2000:&nbsp;<a href="https://en.wikipedia.org/wiki/Lynne_Brindley" target="_blank" rel="nofollow noopener">Lynne Brindley</a>&nbsp;was appointed as the first female chief executive of the&nbsp;<a href="https://en.wikipedia.org/wiki/British_Library" target="_blank" rel="nofollow noopener">British Library</a>.</li>
+<li>2002: Inez Lynn was appointed as the first female librarian in the&nbsp;<a href="https://en.wikipedia.org/wiki/London_Library" target="_blank" rel="nofollow noopener">London Library</a>'s history.</li>
+<li>2004: Anjana Chattopadhyay became the first Director of National Medical Library, New Delhi, India.</li>
+<li>2012:&nbsp;<a href="https://en.wikipedia.org/wiki/Sonia_L%27Heureux" target="_blank" rel="nofollow noopener">Sonia L'Heureux</a>&nbsp;became the first female&nbsp;<a href="https://en.wikipedia.org/wiki/Parliamentary_Librarian_of_Canada" target="_blank" rel="nofollow noopener">Parliamentary Librarian of Canada</a>.</li>
+<li>2016: Laurence Engel became the first female head of the&nbsp;<a href="https://en.wikipedia.org/wiki/French_National_Library" target="_blank" rel="nofollow noopener">French National Library</a>.</li>
+<li>2016:&nbsp;<a href="https://en.wikipedia.org/wiki/Carla_Hayden" target="_blank" rel="nofollow noopener">Carla Hayden</a>&nbsp;became the first female&nbsp;<a href="https://en.wikipedia.org/wiki/Librarian_of_Congress" target="_blank" rel="nofollow noopener">Librarian of Congress</a>.</li>
+</ul>
+
+</br>
