@@ -1,5 +1,3 @@
-</br>
-
 <h2 id ="Timeline of women in library science"> Timeline of women in library science</h2>
 <ul>
 <li>1890:&nbsp;<a href="https://en.wikipedia.org/wiki/Elizabeth_Putnam_Sohier" target="_blank" rel="nofollow noopener">Elizabeth Putnam Sohier</a>&nbsp;and&nbsp;<a href="https://en.wikipedia.org/wiki/Anna_Eliot_Ticknor" target="_blank" rel="nofollow noopener">Anna Eliot Ticknor</a>&nbsp;became the first women appointed to a United States state library agency--specifically, the&nbsp;<a href="https://en.wikipedia.org/wiki/Massachusetts_Board_of_Library_Commissioners" target="_blank" rel="nofollow noopener">Massachusetts Board of Library Commissioners</a>.</li>
